@@ -1,0 +1,1 @@
+Excited about his newly-earned powers, Midas started touching all kinds of things, turning each item into pure gold.
